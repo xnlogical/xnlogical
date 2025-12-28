@@ -8,8 +8,8 @@ I'm a 16-yo self-taught engineer and high school student from Turkey/Türkiye �
 
 - I ❤️ programming, open source, and learning.
 - Interested in compilers, interpreters, among other things.
-- Life-long gamer
-- Massive Star Trek & sci-fi fan
+- Gaming enthusiast
+- Star Trek & sci-fi fan
 
 That's about it, no need to yap here..
 
