@@ -2,7 +2,7 @@
 
 I'm a 16-yo self-taught engineer and high school student from Turkey/Türkiye 🇹🇷
 
-*Self-proclaimed* systems engineer (primarily x86) and freelance game developer
+*Self-proclaimed* systems engineer and freelance game developer
 
 ### About ❓
 
