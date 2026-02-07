@@ -13,6 +13,6 @@ I'm a 16-yo self-taught engineer and high school student from Turkey/Türkiye �
 
 That's about it, no need to yap here..
 
-You may contact me via Discord, just shoot me a friend/message request (username: `ceo_oftaxfraud`)
+You may contact me via Discord, just shoot me a friend/message request (@`xnlogical`)
 
 **See pinned projects for cool stuff* 😎
